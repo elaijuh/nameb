@@ -1,4 +1,4 @@
-nameb
+起名
 =====
 
-Chinese name for new born baby
+所有字皆选自诗经，甄选标准为笔者个人喜恶。 多无大富大贵大喜大寿之意， 但取山石花鸟自然之趣 。
